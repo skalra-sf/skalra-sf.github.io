@@ -1,1 +1,0 @@
-# skalra-sf.github.io
